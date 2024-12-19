@@ -1,1 +1,1 @@
-# pricingtable
+# pricingtable.com
